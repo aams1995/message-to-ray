@@ -22,3 +22,6 @@ just come [here](https://discord.gg/Wffc77pT).
 |👌|
 
 thank for reading
+
+
+yees
