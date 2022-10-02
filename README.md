@@ -1,8 +1,6 @@
 #This is a message to ray only
 
-##Why I fuckedup?
 
-will I fuckedup because I am lazzy.
 
 ##What is this project?
 
