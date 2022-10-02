@@ -8,7 +8,7 @@ is a project that I make to makeup.~~RIP english~~.
 
 
 ##For contect: 
-just come [here](https://discord.gg/Wffc77pT).
+just come [here](https://discord.gg/Wffc77pT). just come.
 
 
 |🙋‍♂️| 
